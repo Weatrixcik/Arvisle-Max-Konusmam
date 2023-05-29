@@ -1,0 +1,8 @@
+![image](https://github.com/Weatrixcik/Arvisle-Max-Konusmam/assets/121248383/385d9812-fce2-4f36-acc2-c863acf1fb9c)
+![image](https://github.com/Weatrixcik/Arvisle-Max-Konusmam/assets/121248383/614fa64c-d9af-43f4-8478-ad309028e86f)
+![image](https://github.com/Weatrixcik/Arvisle-Max-Konusmam/assets/121248383/34af5679-f8f5-48b6-ad33-f5ca90383478)
+![image](https://github.com/Weatrixcik/Arvisle-Max-Konusmam/assets/121248383/a4ed73d0-c748-4568-bfe5-71d30da12087)
+![image](https://github.com/Weatrixcik/Arvisle-Max-Konusmam/assets/121248383/6286cd44-27db-4cc3-884b-9873c62d277f)
+![image](https://github.com/Weatrixcik/Arvisle-Max-Konusmam/assets/121248383/3ac6d87d-4ea9-42af-b96b-af49fa78f512)
+![image](https://github.com/Weatrixcik/Arvisle-Max-Konusmam/assets/121248383/93794e72-f77b-4a18-a640-c27e9f55e5f5)
+![image](https://github.com/Weatrixcik/Arvisle-Max-Konusmam/assets/121248383/4740c3c7-72c2-4c9b-abaa-dfd22d024ef5)
